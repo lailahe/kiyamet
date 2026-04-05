@@ -5,7 +5,9 @@
 # KIYAMET
 
 **MEHDİ TELEPATİ**  
-*SELEHATTİN YÜKSEL*
+*SELEHATTİN YÜKSEL*  
+İLAHİ SİYASETÇİ
+
 > diyorki; Kıyamete teslim olmayalım. Bereketizmi uyguluyalım, kuralım.  
 
 ## BEREKETİZM DEMOKRASİ PROGRAMI    
