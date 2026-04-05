@@ -1,3 +1,6 @@
+
+<img src="https://github.com/user-attachments/assets/65487df2-b922-4799-a218-61d4be4cdbd5" height="500">
+
 # KIYAMET
 
 **MEHDİ TELEPATİ**  
