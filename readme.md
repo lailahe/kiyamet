@@ -1,6 +1,5 @@
 
-<img src="https://github.com/user-attachments/assets/65487df2-b922-4799-a218-61d4be4cdbd5" height="500"> <img height="500" alt="arka" src="https://github.com/user-attachments/assets/dc09375d-441d-41d9-a082-3c4793d3c7ef" />
-
+<img src="https://raw.githubusercontent.com/lailahe/kiyamet/refs/heads/main/kapak.webp" height="400"> <img height="400" alt="arka" src="https://raw.githubusercontent.com/lailahe/kiyamet/refs/heads/main/arka.webp" />
 
 # KIYAMET
 
